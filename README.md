@@ -3,3 +3,6 @@ https://medium.com/simform-engineering/how-to-integrate-siri-shortcuts-and-desig
 
 00008020-000A215C3EEA002E：damon
 00008101-000230900A00001E :max
+
+
+https://post.smzdm.com/p/a6p2kx5z/
